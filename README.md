@@ -14,3 +14,10 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+## Om mig
+### här håller jag på att testa o testa
+#### där för kan det se lite kosntigt ut
+
++ men det går framåt
++ och blir bättre
